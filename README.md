@@ -1,0 +1,2 @@
+- 👋 Técnico administrativo na Instituto Federal de Educação, Ciência e Tecnologia de São Paulo - IFSP
+- Formação: Análise e Desenvolvimento de Sistemas
